@@ -1,0 +1,1 @@
+# WedMind Logo
